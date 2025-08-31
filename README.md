@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Anvixo
 - 👀 I’m interested in too much shit to put here
-- 🌱 I’m currently learning Undertale Styled Spriting
-- 💞️ I'm Working on TT!Undertale Tenacious Road
+- 🌱 <--- plant
+- 💞️ I'm Working on [[HYPERLINK BLOCKED]]
 - 📫 How to reach me? @anvixo on discord
 - 😄 Pronouns:
-  He/Him
+  He/Him and They/Them
 - ⚡ Fun fact:
-  uh im ace
+  I've cracked my head twice!!
